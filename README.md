@@ -1,4 +1,2 @@
 # kainet.
-
-<h>kainet.
-Coming soon...<h>
+Do not edit or midify in any way. Consult with Louie Nader.
